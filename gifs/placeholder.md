@@ -1,0 +1,7 @@
+![download](https://github.com/user-attachments/assets/e8f05c86-0088-434d-8d2b-58cbec42b8fd)
+![Fazer exercício aeróbico em jejum emagrece_](https://github.com/user-attachments/assets/1fafaac1-3215-48c4-9ea1-bfe5b0f42ca3)
+![Pray Good Vibes GIF by Ryn Dean (1)](https://github.com/user-attachments/assets/1cdedfab-1644-4acc-b08c-9b0607b8cb92)
+![yoga pose GIF](https://github.com/user-attachments/assets/c796dfe3-dc08-4060-bf1d-8628779a9b62)
+![Deadbug GIF by Crossfit Boran](https://github.com/user-attachments/assets/a1500edc-6620-4d84-a513-bc27b6492c74)
+![The Ultimate Jump Rope Workout](https://github.com/user-attachments/assets/74199f3c-48ff-417a-935f-1252df2f7a35)
+![What Is Vinyasa Yoga and the Vinyasa Sequence of Poses](https://github.com/user-attachments/assets/798ec34b-ad35-4259-97e5-c34753cd30e2)
